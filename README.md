@@ -1,0 +1,1 @@
+Jinka milna kismat me nhi hota, unse pyarr beshumar hota h.
